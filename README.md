@@ -4,4 +4,4 @@
 - 정보처리기사 자격증 준비 중 📝
 
 🫧 블로그에도 정리하는 중이에요!
-[hyun-log.tistory.com] (https://hyun-log.tistory.com
+[hyun-log.tistory.com] (https://hyun-log.tistory.com)
